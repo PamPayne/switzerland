@@ -1,0 +1,2 @@
+# switzerland
+Regulatory documents — Switzerland
